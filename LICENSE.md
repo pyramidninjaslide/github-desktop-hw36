@@ -1,4 +1,4 @@
-# 
+# professional JetBrains IntelliJ IDEA for PC plugins is the best JetBrains IntelliJ IDEA for PC plugins with version-control-integration and GUI-interface. Safe, reliable, and
 
 
 
